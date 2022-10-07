@@ -1,0 +1,1 @@
+# pensamento_Bar-o1C
